@@ -1,0 +1,1 @@
+Gorge on a fusion of Indo-Asian dish with cottage cheese cubes wrapped around cooked noodles and deep-fried to crispy best. Paneer thread rolls are an ideal snack to amp up your snacks table!
