@@ -8,5 +8,5 @@
 •	Now carefully roll the paneer with noodles.
 •	Take one piece of paneer and few noodle strands and roll the strands over the paneer piece in a uniform way. Repeat the process for all the paneer pieces.
 •	Now take a wok and heat desi ghee in it over high flame. Make sure it is flaming hot before cooking the paneer pieces as the noodles might absorb more ghee than expected.
-•	Once the wok is sufficiently hot, place the paneer pieces one by one and fry till they turn golden brown. Serve hot.
+Once the wok is sufficiently hot, place the paneer pieces one by one and fry till they turn golden brown. Serve hot.
 
